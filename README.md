@@ -1,4 +1,4 @@
-# Olá! Eu sou a Taynara Nunes Patriota ✨
+# Olá! Eu sou a Taynara Nunes ✨
 
 🎓 **Estudante de Bacharelado em Ciência e Tecnologia (BCT) na UNIFESP** 
 🚀 **Apaixonada por Dados e Qualidade**  
